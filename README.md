@@ -1,0 +1,1 @@
+# guaranteed-installment-loans-for-bad-credit-direct-lenders-only
